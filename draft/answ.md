@@ -33,4 +33,4 @@ Dado que la IA está transformando la economía y la seguridad nacional, el art�
 
 China y Japón ya han implementado excepciones al copyright para la IA, lo que da ventaja a sus empresas. El equipo de Anna’s Archive desea operar legalmente, pero seguirá con su labor clandestina si las reformas no llegan. La conclusión es clara: la reforma del copyright ya no es solo un debate moral, sino un asunto de supervivencia tecnológica y geopolítica.
 
-LISTOOOOOOOOOOOOOO
+LISTOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO
